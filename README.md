@@ -1,4 +1,4 @@
-# Bin Lu, this is for you
+# Lu Bin, this is for you
 
 > Lu Bin, this is for you!  
 > In this mod, you can experience the life of a farmer.  
